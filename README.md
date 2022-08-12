@@ -3,7 +3,8 @@ This will take a moment
 
 <-------------------------------->
 -Just some fun minecraft clients :3 
-" Tip im not helping anyone with instal or use of these so cope 
+" Tip im not helping anyone with 
+instal or use of these so cope "
 <-------------------------------->
 - Clients that are to big will be under this text
 
